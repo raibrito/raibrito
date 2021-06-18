@@ -1,4 +1,5 @@
-### Hi there 👋
+### Hi, my name is Rai.
+### I am a student and  😍 about technology.
 
 
 
